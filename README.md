@@ -1,4 +1,4 @@
-# Hi, I'm Leidy Greta!👋 Ciao, sono Leidy Greta!🌼 Hola, soy Leidy Greta! ❤️🤍❤️
+# Hi, I'm Leidy Greta!👋 Ciao, sono Leidy Greta!🌼 Hola, soy Leidy Greta! 🇵🇪
 
 
 ### 🎯 **About Me**
